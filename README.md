@@ -8,6 +8,7 @@
 
 <p style="text-align:center"><b>likes:</b> jjk, warrior cats, cats, ninjago and a buncha other things.</p>  
 <p style="text-align:center"><b>fave ships:</b> (JJK) fushiita, sukufushi, sukuita, fushigo, fushigoyuu, goyuu (WARRIOR CATS) FireSand, GrayFire, GrayFireSand, SorrelBracken, LeafCrow, JayKestrel, BristleRoot, RootShadow and a few others :3
+  
 <b>DNI:</b> antis and anyone under 18 :p i
 I DO NOT CONDONE ANY OF THE PROSHIPS ABOVE IN REAL LIFE !! If you message me just to harass me then that is YOUR problem, not mine. Block or hide or ignore me, i do not care.
 
