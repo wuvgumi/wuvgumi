@@ -7,6 +7,7 @@
 <p style="text-align:center">c+h friendly !! ⋆｡ﾟ☁︎｡⋆｡ ﾟ☾ ﾟ｡⋆ w2i !</p>
 
 <p style="text-align:center"><b>likes:</b> jjk, warrior cats, cats, ninjago and a buncha other things.</p>  
+<p style="text-align:center"><b>fave ships:</b> (JJK) fushiita, sukufushi, sukuita, fushigo, fushigoyuu, goyuu (WARRIOR CATS) FireSand, GrayFire, GrayFireSand, SorrelBracken, LeafCrow, JayKestrel, BristleRoot, RootShadow and a few others :3
 
 
 
